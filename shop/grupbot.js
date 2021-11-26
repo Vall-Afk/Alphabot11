@@ -11,6 +11,13 @@ _https://chat.whatsapp.com/KCSqHTky1apG7ApePsfiPy_
 4. *Alphabot Support 4* 
 _https://chat.whatsapp.com/KwmvHr7VMFj7r5ry9xmMsU_
 
+
+Khusus Link gc owner.
+
+
+1. *Bot WhatsApp By Mark Zuckerberg*
+_https://chat.whatsapp.com/Jdajj7fEh9xGQyONgS6Eil_
+
 Jika ada link yang ke reset, silahkan hubungi
 owner untuk meminta link yang baru
 `
